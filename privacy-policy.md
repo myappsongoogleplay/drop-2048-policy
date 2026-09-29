@@ -303,6 +303,6 @@ published on this page.
 If you have any questions, concerns, or suggestions about this Privacy
 Policy or the privacy practices of Drop 2048, please contact:
 
-**IaaH**  
+**HELALI Studios**  
 Germany  
 **Email:** [ibrahimalhelali91@gmail.com](mailto:ibrahimalhelali91@gmail.com)
